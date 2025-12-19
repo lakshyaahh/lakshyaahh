@@ -15,14 +15,14 @@ Always improving. Always shipping.
 - Build solid AI-ready foundations  
 - Create portfolio-ready projects  
 
-📬 Open to collabs & internship opportunities.
+Open to collabs & internship opportunities.
 ---
 
 ## 🎉 Fun Facts
 
 - I love **coffee** (like fr fr).  
-- My favorite animes: **Death Note** 🔥  
+- My favorite animes: **Death Note**   
 - I play **badminton** and **chess**.  
 - Gym sessions are part of the routine 💪  
-- I love building things and learning by doing — even if I break stuff first 😅
+
 
