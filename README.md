@@ -1,4 +1,4 @@
-# Hey there!!
+# Hey there!
 
 I’m **Lakshya**, an aspiring AI engineer based in India.
 
